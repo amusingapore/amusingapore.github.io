@@ -1,0 +1,2 @@
+# amusingapore.github.io
+AMU ALUMNI ASSOCIATION OF SINGAPORE
